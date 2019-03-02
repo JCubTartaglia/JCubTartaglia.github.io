@@ -1,1 +1,0 @@
-# JCubTartaglia.github.io
